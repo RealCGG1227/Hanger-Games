@@ -1,1 +1,1 @@
-https://github.com/RealCGG1227/Hanger-Games/
+https://realcgg1227.github.io/Hanger-Games/
